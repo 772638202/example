@@ -59,3 +59,14 @@ float
 
 
 下午四点又胡写了一通
+`qwe
+__DBL_HAS_QUIET_NAN__we
+qw
+r
+we
+thread_locale
+tw
+externqw
+erqw
+
+dsuysihjdbnm
