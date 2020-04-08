@@ -39,3 +39,23 @@ df)
     /* code */
 }
 下午三点多提交的代码
+wjelfjsdlas
+defaultads
+faw
+registersdf
+__amd64s
+fwer
+gotosfd
+gotosdfgerw
+gotoaf
+defaultads
+floatasd
+floatd
+floata
+defaulta
+__SIZEOF_DOUBLE__ads
+float
+
+
+
+下午四点又胡写了一通
